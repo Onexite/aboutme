@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, my name is Murat and I am 17 years old. I am developing my own company software and I am suitable for full-time or part-time working standards. I also enjoy working independently. New ideas for a new future..<br>
+Hello, my name is Murat and I am 18 years old. I am developing my own company software and I am suitable for full-time or part-time working standards. I also enjoy working independently. New ideas for a new future..<br>
 
 
 ## 🌐 Socials:
